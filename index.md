@@ -1,3 +1,3 @@
 ## Os segredos precisam ser revelados...
 
-[Link] (https://youtu.be/RxeYO9oe6F8)
+(https://youtu.be/RxeYO9oe6F8)
