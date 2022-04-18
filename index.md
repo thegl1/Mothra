@@ -1,5 +1,6 @@
 ## _Os [segredos](https://youtu.be/R0G6FrLD9j0) serão revelados._
 
+
      899X7                                                X8997
    g999999Wm_                                         ,gm999999W.
  gW99*~~~~VM9Ws                                     ,m99*~~~~VM99m.
@@ -25,3 +26,5 @@ M9999AM99s.   ,g9999`       '99[    99P        Y999W_    _W99*99999!
       V999            ,gm9Af`          ~*9Wm_            ]99A`
         ~*Nm______mmW99Af                 '*999mms_____gm*f`
            99999999                              99999999
+           
+      
