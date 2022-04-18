@@ -1,3 +1,1 @@
-## Os segredos precisam ser revelados...
-
-'[Link](https://youtu.be/RxeYO9oe6F8)'
+## _Os [segredos](https://youtu.be/R0G6FrLD9j0) serão revelados._
